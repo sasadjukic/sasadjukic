@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sasadjukic
-- 👀 I’m interested in ... AI, python, games
+- 👀 I guess I can call myself a vibe coder now
 - 🌱 I’m currently learning ... to get better in python and to master that thing called life
 
 <!---
