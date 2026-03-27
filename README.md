@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sasadjukic
-- 👀 I guess I can call myself a vibe coder now
+- 👀 Keyboard Warrior and a frequent Vibe Coder
 
 <!---
 sasadjukic/sasadjukic is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
