@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sasadjukic
-- 👀 Keyboard Warrior and Slopmaxxer 🤢  
+- 👀 I'm a keyboard warrior and Gigachad Slopmaxxer 🤢. My slop mogs your slop.  
 
 <!---
 sasadjukic/sasadjukic is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
