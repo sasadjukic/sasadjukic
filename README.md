@@ -1,4 +1,3 @@
-- Hi, I’m @sasadjukic
 - Certified Gigachad Slopmaxxer 🤢. My slop mogs your slop.  
 
 <!---
